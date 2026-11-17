@@ -1,1 +1,1 @@
-# cherrerlus
+TechZone RD es una empresa dominicana dedicada a la comercialización y distribución directa de equipos, componentes y herramientas tecnológicas diseñadas para impulsar proyectos académicos, profesionales y de emprendimiento. Su enfoque principal es facilitar el acceso rápido y confiable a dispositivos clave, periféricos y soluciones de hardware, llevándolos directamente a las manos de estudiantes, creadores y pequeñas empresas en todo el país para optimizar su productividad y hacer realidad sus ideas.
